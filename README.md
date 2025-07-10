@@ -1,1 +1,1 @@
-ahoj magori
+toto je muj skolni ultra mega super projekt, ktery je super a mega a ultra a tak daleko
